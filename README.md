@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @George3310   
-- 👀 I’m interested in ... busines 
+- 👀 I’m interested in ... ficial freedom conversations.
 - 🌱 I’m currently trading  ... forex
 - 💞️ I’m looking to collaborate on ... coaching more. clients abdbn.w 
 - 📫 How to reach me ...
